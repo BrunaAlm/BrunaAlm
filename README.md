@@ -2,7 +2,7 @@
 - 👀 Eu amo estudar a medicina, papo memos, gosto de ler e tocar pandeiro aos finais de semana:sunglasses:
 - 🌱 Estudo no vicente das 14:15 as 21:15, bimestre passado eu fui considerada o destaque da sala (delícia), toda quinta e sexta eu faço TI :weary:
 - 💞️ Bruninha está dodói e não pode colaborar com nada...:thumbsup:
-- 📫 No insta, segue lá @bruh.sandes :smirk:
+- 📫 Insta, segue lá @bruh.sandes :smirk:
 
 <!---
 BrunaAlm/BrunaAlm is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
